@@ -1,4 +1,4 @@
-# 
+# متقدم Avast Premium Security إضافات لـ Mac OS | أصلي Avast Premium Security إضافات لـ PC Windows. مع تحكم في التطبيقات و نظام الإضافات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
